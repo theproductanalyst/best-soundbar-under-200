@@ -1,6 +1,6 @@
 # Best Soundbar Under 200
 
-## Looking for Soundbar with Wireless Subwoofer? Try this one!
+### Looking for Soundbar with Wireless Subwoofer? Try this one!
 
 When you have dreamed of a great home theater, you don't need to buy many speakers to feel the difference in your theater room. You want to have big bass, you may want to have great sound with no crash. Some people usually choose to buy bass and treble separately, it is not effective as you need to install and set the amplifier with complicated setting too. Some people may not be able to set correctly so they cannot feel the big bass and treble at the right balance. One of the best ways to get perfect sound in your home is by installing the best soundbar.
 
